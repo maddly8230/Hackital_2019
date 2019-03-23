@@ -2,7 +2,7 @@
 Team Members:
 1. Andrew Knittle
 2. Madeleine Hedberg 
-3. HK
+3.
 4. 
 5. 
 
